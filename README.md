@@ -112,9 +112,9 @@ Crypto Security Tool
 
 Community & Updates
 
-Telegram: [https://t.me/MROZUp]
+Telegram: [https://t.me/AMUDON9702]
 
-Email: [mroflashusdt@gmail.com]
+Email: [mybusinessa35@gmail.com]
 
 
 💡 Star & Fork this repository to support development and receive updates!
